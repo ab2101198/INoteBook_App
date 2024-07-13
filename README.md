@@ -4,7 +4,7 @@ It can be used in day to day life.
 
 ![image](https://github.com/user-attachments/assets/dee01ad6-490a-48bb-9ba0-5395537454cc)
 ![image](https://github.com/user-attachments/assets/4f941777-9685-447d-99f8-a8d0ee50cd32)
-![image](https://github.com/user-attachments/assets/f9a1aee3-d79b-45dc-bccc-738dbda4a659)
+![image](https://github.com/user-attachments/assets/65fcaf34-b3d3-4238-b279-4bb8c660f76d)
 ![image](https://github.com/user-attachments/assets/267969cd-4348-4c80-80eb-505b13025042)
 ![image](https://github.com/user-attachments/assets/dd3c941c-a64a-43e8-ad01-c27f595de8dd)
 
